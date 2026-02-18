@@ -1,5 +1,3 @@
-01_KFW - Kinetic Fitness Series
-
 The Kinetic Fitness Series is a collection of six works produced under KFW (Kinetic Fitness Works).
 This series focuses on physical capability, movement principles, and foundational body mechanics.
 It provides a structured approach to understanding and improving human movement through six independent but interconnected books.
